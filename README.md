@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on someone😏
 - 📫 How to reach me: easy
 - 😄 Pronouns: none (i need it?)
-- ⚡ Fun fact: i like create games cartoon and comics stories 
+- ⚡ Fun fact: i like create games, cartoon and comics stories 
 
 <!---
 NescauAlenda/NescauAlenda is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
